@@ -1,4 +1,4 @@
-
+elite Automation for iStat Menus for macOS - screenshot-tools and cloud-sync offers the most advanced iStat Menus for macOS automation, with screenshot-tools and cloud-sync. Ideal
 
 
 
